@@ -1,0 +1,1 @@
+baca aja si. gua cuma ngeshare web-web tentang yang gua pelajari aja.
